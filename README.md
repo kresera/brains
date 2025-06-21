@@ -1,5 +1,4 @@
-
-![Uploading SYMBOL 1.jpg…]()
+![SYMBOL 1](https://github.com/user-attachments/assets/ff81bc5c-a290-487a-b635-71c442e6fe03)
 
 **Cognitive Supremacy > Distributed Intelligence > KRESERA™**
 
