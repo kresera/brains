@@ -18,7 +18,7 @@ The philosophical foundation draws from mycorrhizal intelligence; the vast funga
 
 Unlike traditional collaborative platforms that merely coordinate individual efforts, KRESERA™ facilitates authentic cognitive symbiosis. Participants don't simply share conclusions; they share thinking processes, reasoning methodologies, and cognitive frameworks. The system maps the topology of thought itself, creating navigable architectures of human reasoning that can be traversed, modified, and extended.
 
-This represents the maturation of human intelligence from isolated biological processors to interconnected cognitive ecosystems. We're not augmenting individual brains with technology—we're evolving something more profound: a species capable of distributed consciousness while maintaining individual cognitive sovereignty.
+This represents the maturation of human intelligence from isolated biological processors to interconnected cognitive ecosystems. We're not augmenting individual brains with technology; we're evolving something more profound: a species capable of distributed consciousness while maintaining individual cognitive sovereignty.
 
 The implications transcend productivity optimization. KRESERA™ addresses the fundamental challenge of post-digital existence: how to preserve and amplify human wisdom in an era of artificial intelligence proliferation. By networking human cognition, we create intelligence architectures that remain irreducibly human while achieving computational sophistication that rivals any artificial system.
 
