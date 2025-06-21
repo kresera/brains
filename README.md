@@ -2,11 +2,11 @@
 
 **We are decentralizing our brains to a network of brains.**
 
-![SYMBOL 1](https://github.com/user-attachments/assets/ff81bc5c-a290-487a-b635-71c442e6fe03) 
-
 **KRESERA™** (from the Sanskrit सर्वात्मन् meaning "universal self" or "all-consciousness" - a concept from the Bhagavad Gita describing the interconnected nature of all conscious beings) represents a fundamental reconceptualization of human cognitive architecture in the epoch of distributed intelligence. Where conventional paradigms confine consciousness to individual biological substrates, KRESERA™ transcends these boundaries by orchestrating collective cognitive ecosystems that preserve individual sovereignty while enabling transcendent intellectual emergence.
 
-The philosophical foundation draws from mycorrhizal intelligence—the vast fungal networks that connect forest ecosystems through underground communication highways. These biological architectures demonstrate how discrete organisms maintain autonomy while participating in larger information processing systems. Trees share resources, communicate threats, and make collective decisions through fungal intermediaries, creating forest-scale intelligence that exceeds any individual organism's capacity.
+The philosophical foundation draws from mycorrhizal intelligence; the vast fungal networks that connect forest ecosystems through underground communication highways. These biological architectures demonstrate how discrete organisms maintain autonomy while participating in larger information processing systems. Trees share resources, communicate threats, and make collective decisions through fungal intermediaries, creating forest-scale intelligence that exceeds any individual organism's capacity.
+
+![SYMBOL 1](https://github.com/user-attachments/assets/ff81bc5c-a290-487a-b635-71c442e6fe03) 
 
 **KRESERA™ applies this principle to human consciousness through three foundational architectures:**
 
